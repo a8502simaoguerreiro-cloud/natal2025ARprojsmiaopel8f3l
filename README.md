@@ -1,0 +1,1 @@
+# natal2025ARprojsmiaopel8f3l
